@@ -1,5 +1,5 @@
 ## bleh
-
+<img width="1750" height="1688" alt="Image" src="https://github.com/user-attachments/assets/a9a852ae-f99e-499f-8ad5-913ed7125f01" />
 <!--
 **leow0okriced/leow0okriced** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

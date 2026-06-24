@@ -1,4 +1,5 @@
 ## bleh
+<img width="1472" height="828" alt="Image" src="https://github.com/user-attachments/assets/d80c8021-70c2-4bd2-ba6e-26af2a555cfc" />
 <img width="85" height="94" alt="Image" src="https://github.com/user-attachments/assets/5cacf104-40bc-4860-9c70-5c8aff5c91e9" />
 
 <img width="1750" height="1688" alt="Image" src="https://github.com/user-attachments/assets/a9a852ae-f99e-499f-8ad5-913ed7125f01" /> $\color{#453622}{\text{ ᘎ Bounty}}$  

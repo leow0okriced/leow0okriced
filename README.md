@@ -15,14 +15,21 @@
 
 
 ᥬ   ۵ ..  I take pony reqs, I will give it to you 4 free ♡
-
+<img width="385" height="29" alt="Image" src="https://github.com/user-attachments/assets/331378ee-e9ec-4e2b-8d30-760f4e7177f1" />
 spokudayooo on discord ​᭄ও
 
 BMF please. . . 
 
 all / any pronouns 
+
+
 ﹏﹏﹏﹏﹏﹏﹏
 
 
 <img width="268" height="21" alt="Image" src="https://github.com/user-attachments/assets/59798db3-66d3-4717-a53d-5ad50ec77969" />
 <img width="349" height="37" alt="Image" src="https://github.com/user-attachments/assets/52918024-c329-4382-a4ef-c71b0243150a" />
+
+i go by riced / Leo / spokitties
+
+
+he / him, they / them pronouns preferred, though you can use anything

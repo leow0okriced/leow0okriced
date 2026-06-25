@@ -5,3 +5,12 @@
 <img width="153" height="31" alt="Image" src="https://github.com/user-attachments/assets/790f7dd9-ca7d-43d3-8985-a8983878b913" />
 
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
+
+“𝗍һᥲ𝗍 ᥆ᥒᥱ ◡◡ ☁
+
+   🌈  ⪩⪨ s⍴᥆kᥱ 𝖿ᥲᥒ”
+
+ . ! proudly taken by louise <3 
+
+
+ᥬ   ۵ ..  I take pony reqs, I will give it to you 4 free ♡

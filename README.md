@@ -7,7 +7,8 @@
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
 “𝗍һᥲ𝗍 ᥆ᥒᥱ ◡◡ ☁
-
+<img width="36" height="46" alt="Image" src="https://github.com/user-attachments/assets/12f47e88-b493-49af-b276-d5916aeb6018" />
+ 
    🌈  ⪩⪨ s⍴᥆kᥱ 𝖿ᥲᥒ”
 
  . ! proudly taken by louise <3 

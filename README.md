@@ -33,3 +33,9 @@ i go by riced / Leo / spokitties
 
 
 he / him, they / them pronouns preferred, though you can use anything
+
+spoke fan, i love spoke he so awww
+
+
+rest in piece to my mapicc he got hit with a wind charge... 
+<img width="392" height="70" alt="Image" src="https://github.com/user-attachments/assets/ae7ba890-aeff-4fcf-8caa-376420509cad" />

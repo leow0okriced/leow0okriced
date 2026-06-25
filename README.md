@@ -7,7 +7,7 @@
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
 “𝗍һᥲ𝗍 ᥆ᥒᥱ ◡◡ ☁
-<img width="36" height="46" alt="Image" src="https://github.com/user-attachments/assets/12f47e88-b493-49af-b276-d5916aeb6018" />
+<img width="36" height="26" alt="Image" src="https://github.com/user-attachments/assets/12f47e88-b493-49af-b276-d5916aeb6018" />
  
    🌈  ⪩⪨ s⍴᥆kᥱ 𝖿ᥲᥒ”
 
@@ -15,3 +15,6 @@
 
 
 ᥬ   ۵ ..  I take pony reqs, I will give it to you 4 free ♡
+
+<img width="268" height="21" alt="Image" src="https://github.com/user-attachments/assets/59798db3-66d3-4717-a53d-5ad50ec77969" />
+<img width="349" height="37" alt="Image" src="https://github.com/user-attachments/assets/52918024-c329-4382-a4ef-c71b0243150a" />

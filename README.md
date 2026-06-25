@@ -39,3 +39,4 @@ spoke fan, i love spoke he so awww
 
 rest in piece to my mapicc he got hit with a wind charge... 
 <img width="392" height="70" alt="Image" src="https://github.com/user-attachments/assets/ae7ba890-aeff-4fcf-8caa-376420509cad" />
+<img width="192" height="204" alt="Image" src="https://github.com/user-attachments/assets/2ac98844-da42-40b7-8d5b-06a6410685b1" />

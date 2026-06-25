@@ -1,10 +1,2 @@
 ## bleh
-<img width="1472" height="828" alt="Image" src="https://github.com/user-attachments/assets/d80c8021-70c2-4bd2-ba6e-26af2a555cfc" />
-<img width="85" height="94" alt="Image" src="https://github.com/user-attachments/assets/5cacf104-40bc-4860-9c70-5c8aff5c91e9" />
-
-<img width="1750" height="1688" alt="Image" src="https://github.com/user-attachments/assets/a9a852ae-f99e-499f-8ad5-913ed7125f01" /> $\color{#453622}{\text{ ᘎ Bounty}}$  
-$\color{#FEEED8}{\text{Assassin ও}}$
- $\color{#FFC874}{\text{ ⋃⋃ Hunters!}}$
-$\color{#FEEFD8}{\text{◡◡ ᭕ “abc for baby leowook”}}$
-<img width="204" height="252" alt="Image" src="https://github.com/user-attachments/assets/7bdf0a71-5ba4-45ec-be2d-e7e56f5ca5ad" />
-<img width="185" height="194" alt="Image" src="https://github.com/user-attachments/assets/a070a65d-f530-4b21-8249-e47c659dfc57" />
+<img width="240" height="62" alt="Image" src="https://github.com/user-attachments/assets/5a9f7e13-e4ff-4102-aab6-b9a1073c1090" />
